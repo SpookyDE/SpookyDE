@@ -23,7 +23,7 @@ Chess: @SpookyDE chess.com
 
 Darts - because of Marcel Scorpion @ScorpionDarts
 
-Soccer - FC Bayern Munich, Union Berlin
+Footbal ⚽ - FC Bayern Munich, Union Berlin
 
 Handball - SG Flensburg-Handewitt
 
