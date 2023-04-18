@@ -19,12 +19,12 @@ German, English
 
 ## Other hobbies
 
-Chess: @SpookyDE chess.com
+Chess ♟️ @SpookyDE chess.com
 
-Darts - because of Marcel Scorpion @ScorpionDarts
+Darts 🎯 - because of Marcel Scorpion @ScorpionDarts
 
-Footbal ⚽ - FC Bayern Munich, Union Berlin
+Football ⚽ - FC Bayern Munich, Union Berlin
 
-Handball - SG Flensburg-Handewitt
+Handball 🤾 - SG Flensburg-Handewitt
 
 
